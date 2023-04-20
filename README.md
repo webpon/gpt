@@ -2,7 +2,7 @@
 
 #### 网页
 
-1. http://154.7.177.186
+1. https://p1.nbai.live
 2. https://pay2.pages.dev
 3. [https://mxnzp.com/sl/4chK](https://mxnzp.com/sl/4chK)
 4. [https://s.u9f.cn/3p3Osi](https://s.u9f.cn/3p3Osi)
