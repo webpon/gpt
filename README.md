@@ -5,7 +5,7 @@
 - 线路一：https://nav.52chye.cn/
 - 线路二：https://nb.nbai.live
 - 线路三：https://p1.52chye.cn
-- 线路死：https://p1.nbai.live
+- 线路四：https://p1.nbai.live
 
 客服QQ：
 
